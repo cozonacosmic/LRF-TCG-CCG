@@ -63,9 +63,8 @@ Cartonașe Legendare
 - Crează și prezintă un proiect inovator de fizică care impresionează atât profesorul, cât și colegii.
 - Organizează și predă o serie de lecții sau un mini-curs pentru colegii tăi pe un concept dificil de fizică.
 
-**********************
+**************************************************************************************************************
 
-Pachete BOOSTER
 Pachetele BOOSTER sunt formate din 3 carduri aleatorii din setul complet. Unul dintre cartonașe este garantat ca fiind RAR, iar celelalte două pot fi COMUNE, RARE sau SUPER RARE. Pachetele BOOSTER pot fi câștigate completând următoarele questuri:
 
 - Obține în top 10% la un test major.
